@@ -1,0 +1,10 @@
+helooo123
+helooo123
+clear
+date
+cal
+helooo123
+helooo123
+yoyo
+yoyo
+present
